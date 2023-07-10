@@ -1,2 +1,1 @@
-# srt4663x.stb-gmail.com
-HOST SERVER FOR UNLIMITED INTERNET DATA CONNECTION
+hpenergystar@mobile.SDN
